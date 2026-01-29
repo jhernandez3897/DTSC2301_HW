@@ -1,2 +1,2 @@
 # DTSC2301_HW
-Bruh
+There's no purpose
